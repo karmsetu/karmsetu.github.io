@@ -1,2 +1,0 @@
-# karmsetu.github.io
-portfolio
